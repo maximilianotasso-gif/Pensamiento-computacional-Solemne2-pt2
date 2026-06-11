@@ -1,0 +1,1 @@
+# Pensamiento-computacional-Solemne2-pt2
